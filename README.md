@@ -7,6 +7,10 @@ Marketing for Mauve Sushi – Mokattam
 
 This project focuses on designing and implementing a marketing strategy for Mauve Sushi restaurant in Mokattam. It includes a SWOT analysis, seasonal campaigns (like Sham El Nessim), digital presence enhancement, and promotional strategies to increase customer engagement and sales.
 
+🖇️Project Link 
+
+https://canva.link/gexjbokyzeqmvu7
+
 👥 Team Members
 
 Alaa Said Hassan
