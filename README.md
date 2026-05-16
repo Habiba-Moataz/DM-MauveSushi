@@ -9,7 +9,7 @@ This project focuses on designing and implementing a marketing strategy for Mauv
 
 🖇️Project Link 
 
-https://canva.link/gexjbokyzeqmvu7
+https://www.canva.com/design/DAHH-JTxcE0/Yb64AWBXAVNK6L0uZhigPA/edit
 
 👥 Team Members
 
